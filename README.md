@@ -6,6 +6,7 @@
 - 💬 What language do you prefer to speak in Spanish , English , Tamil ...
 - 📫 How to reach me: Email - yuvarajspt1998@gmail.com 
 - 😄 Pronouns: he/his
+- ⚡ have a track on Stock market at NSE
 - ⚡ like to do  : Enjoy of learn new languages with culture like German , japaneses , arabic 
 - ⚡ like to travel in india : Manali , Darjeeling , Shimla , Srinagar....life in mountains 
   ⚡ like to work & live @ US/Europe/Canada/New Zealand/German/Japan 
