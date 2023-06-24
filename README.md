@@ -2,12 +2,12 @@
 - 🔭 I’m currently working on ganesh steel industries.
 - 🌱 I’m currently learning  Data science and lots of tech stuf....
 - 👯 I’m looking to collaborate on Analytics organizations....
-- 🤔 I’m looking for help with Spanish language 
-- 💬 What language do you prefer to speak in English , Tamil ,  Spanish...
+- 🤔 I’m looking for help with German language 
+- 💬 What language do you prefer to speak in English , Tamil , German...
 - 📫 How to reach me: Email - yuvarajspt1998@gmail.com 
 - 😄 Pronouns: he/his
 - ⚡ have a track on Stock market at NSE
-- ⚡ like to do  : Enjoy of learn new languages with culture like German , japaneses , arabic 
+- ⚡ like to do  : Enjoy of learn new languages with culture like , French , japaneses .
 - ⚡ like to travel in india : Manali , Darjeeling , Shimla , Srinagar....life in mountains 
   ⚡ like to work & live @ US/Europe/Canada/New Zealand/German/Japan 
   ⚡ like to explore the world of culture.
