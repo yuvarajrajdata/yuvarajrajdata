@@ -1,5 +1,5 @@
  Hello , I'm Yuvaraj !👋
-- 🔭 I’m currently working on ganesh steel industries.
+- 🔭 I’m currently looking to work on data sciences project.
 - 🌱 I’m currently learning  Data science and lots of tech stuf....
 - 👯 I’m looking to collaborate on Analytics organizations....
 - 🤔 I’m looking for help with German language 
