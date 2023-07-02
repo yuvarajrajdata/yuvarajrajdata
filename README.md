@@ -4,7 +4,8 @@
 - 👯 I’m looking to collaborate on Analytics organizations....
 - 🤔 I’m looking for help with German language 
 - 💬 What language do you prefer to speak in English , Tamil , German...
-- 📫 How to reach me: Email - yuvarajspt1998@gmail.com 
+- 📫 How to reach me: Email - yuvarajspt1998@gmail.com
+- ⬇️ Connect with me here https://www.linkedin.com/in/yuvarajmanoharan98/
 - 😄 Pronouns: he/his
 - ⚡ have a track on Stock market at NSE
 - ⚡ like to do  : Enjoy of learn new languages with culture like , French , japaneses .
