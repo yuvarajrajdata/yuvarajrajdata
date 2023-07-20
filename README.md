@@ -9,7 +9,7 @@
 - 😄 Pronouns: he/his
 - ⚡ have a track on Stock market at NSE
 - ⚡ like to do  : Enjoy of learn new languages with German....
-- ⚡ Traveled in india : Noida , Surat , Pune , Bangalore..
+- ⚡ Travelled in india : Noida , Surat , Pune , Bangalore..
   ⚡ like to work & live @ US/Europe/Canada/New Zealand/German/Japan 
   ⚡ like to explore the world of culture.
   
