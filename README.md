@@ -8,8 +8,8 @@
 - ⬇️ Connect with me here https://www.linkedin.com/in/yuvarajmanoharan98/
 - 😄 Pronouns: he/his
 - ⚡ have a track on Stock market at NSE
-- ⚡ like to do  : Enjoy of learn new languages with culture like , French , japaneses .
-- ⚡ like to travel in india : Manali , Darjeeling , Shimla , Srinagar....life in mountains 
+- ⚡ like to do  : Enjoy of learn new languages with German....
+- ⚡ Traveled in india : Noida , Surat , Pune , Bangalore..
   ⚡ like to work & live @ US/Europe/Canada/New Zealand/German/Japan 
   ⚡ like to explore the world of culture.
   
