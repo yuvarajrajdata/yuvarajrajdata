@@ -10,8 +10,8 @@
 - ⚡ have a track on Stock market at NSE
 - ⚡ like to do  : Enjoy of learn new languages with German....
 - ⚡ Travelled in india : Noida , Surat , Pune , Bangalore..
-  ⚡ like to work & live @ US/Europe/Canada/New Zealand/German/Japan 
-  ⚡ like to explore the world of culture.
+- ⚡ like to work & live @ US/Europe/Canada/New Zealand/German/Japan
+- ⚡ like to explore the world of culture.
   
   Best quote i like  :  “Wake your dreams.” “Life won't wait.” “Believe in yourself.” “Let it be.”
   
