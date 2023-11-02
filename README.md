@@ -1,7 +1,7 @@
  Hello , I'm Yuvaraj !👋
-- 🔭 I am presently seeking opportunities to engage in data science projects.
+- 🔭 I am a Data Engineer working at AIDATADRIVEN.
 - 🌱 I’m currently learning Machine Learninng, Deep Learning & NLP for Data Science....
-- 👯 I’m looking to collaborate with organizations in the field of data science and machine learning.
+- 👯 I’m collaborated with organizations in the field of data science and machine learning.
 - 🤔 I’m looking for help with German language 
 - 💬 What language do you prefer to speak : English , Tamil , German...
 - 📫 How to reach me: Email - yuvarajspt1998@gmail.com
